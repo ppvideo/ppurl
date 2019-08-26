@@ -1,2 +1,2 @@
 # 网址最新地址
-http://www.ppsex7.info
+http://www.ppsexy8.info
